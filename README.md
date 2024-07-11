@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning Dhaka University
 - 💞️ I’m looking to collaborate on coding
 - 📫 How to reach me rahatrahman@gmail.com
-- 😄 Pronouns: Rahat
+- 😄 Pronouns: him/his
 - ⚡ Fun fact: love to learn when I am in a diverse situation
 
 <!---
