@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning Dhaka University
 - 💞️ I’m looking to collaborate on coding
-- 📫 How to reach me rahatrahman@gmail.com
+- 📫 How to reach me iammdrahatrahman@gmail.com
 - 😄 Pronouns: him/his
 - ⚡ Fun fact: love to learn when I am in a diverse situation
 
