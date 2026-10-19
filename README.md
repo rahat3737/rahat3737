@@ -3,7 +3,7 @@
 - 🌱 I’m currently studying at Dhaka University
 - 💞️ I’m looking to collaborate on coding
 - 📫 How to reach me iammdrahatrahman@gmail.com
-- 😄 Pronouns: him/his
+- 😄 Pronouns: he/him
 - ⚡ Fun fact: love to learn when I am in a diverse situation
 
 <!---
