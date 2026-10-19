@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @rahat3737
-- 👀 I’m interested in coding
+- 👀 I’m interested in data analysis and coding
 - 🌱 I’m currently studying at Dhaka University
 - 💞️ I’m looking to collaborate on coding
 - 📫 How to reach me iammdrahatrahman@gmail.com
